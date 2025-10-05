@@ -1,0 +1,3 @@
+>[!note] Backstory
+>The Irontoes have dwelled in the mountains of The Frozen North for 2000 years. They have delved deep into the heart of the mountains and constructed a vast network of tunnels and underground cities within. They are generally welcoming to outsiders as long as they are part of the Alliance of the Free Kingdoms.
+>Their bustling trade routes connect them to settlements across the Alliance, exchanging precious metals and finely crafted goods. The Irontoes are particularly renowned for their masterful ironwork and jewelry, with their signature pieces featuring intricate geometric patterns passed down through generations.
