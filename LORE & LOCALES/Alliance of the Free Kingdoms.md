@@ -1,0 +1,3 @@
+
+> [!NOTE] System/Government
+> System: The AFK is a coalition of nations which have agreed to support one another in both trade and defense. Consisting of peoples from multiple races, this alliance was the first of its kind to come about since the creation of Tirna by its creator. The early years of the alliance were rocky as most of the Dwarf clans saw no benefit in allying themselves with outsiders. This sentiment changed, however, when war was on their doorstep. After the Sacking of Lun Modir, the Dwarf clans called on their allies who helped them take back their home and rebuild. Since then, the Dwarves of Tirna have never turned down a cry for help from any kingdom in the alliance.
